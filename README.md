@@ -4,7 +4,7 @@
 
 开个库记录一下prompt。
 
-分享皆为绿色，要其他颜色请灵活使用nsfw。
+分享皆为绿色，18+请灵活使用nsfw。
 
 # 用到的model会更新在这里
 链接：https://pan.baidu.com/s/1rwMzC9dP3XT2XYKwBs8Szg 提取码：dm2t
